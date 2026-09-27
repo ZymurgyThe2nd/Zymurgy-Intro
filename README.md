@@ -4,3 +4,4 @@
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/4f650187f272709241b74392c7cb1db43e501e35/BlackLines.jpg)
 Guys did you know I really like the Ultra Beasts
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/6dbbd1af98813a59285a04fe225b4b5aaa1d82ec/XurkitreeSprite.gif)
+![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/42f02eaaecaedd638252ac767c47289d99ec0521/BlacephalonSprite.gif)
