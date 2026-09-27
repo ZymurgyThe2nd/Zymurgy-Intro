@@ -18,3 +18,4 @@ Guys did you know I really like the Ultra Beasts, so I trapped them and myself i
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/b73b041b4bf3dab010f12bd7fb128f4ddd9be860/Naganadel.gif)
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/23ae9b67a6a0e4e62c44640f54f93eeaa1f4aa7b/BlackLines.jpg)
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/c552bd89b58764236778f91be06130be367f849a/OrangeLine.jpg)
+![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/669fd16428175b2aa3883ce743a48c9cddd77061/WhiteLine.jpg)
