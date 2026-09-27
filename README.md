@@ -6,3 +6,4 @@ Guys did you know I really like the Ultra Beasts, so I trapped them and myself i
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/6dbbd1af98813a59285a04fe225b4b5aaa1d82ec/XurkitreeSprite.gif)
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/42f02eaaecaedd638252ac767c47289d99ec0521/BlacephalonSprite.gif)
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/184bad39dd0bc01be49ed8d781cf5ba15268c58c/NihilegoSprite.gif)
+![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/f3704dfc30333e3fcfcf97700e86035eac0c9ec6/KartanaSprite.gif)
