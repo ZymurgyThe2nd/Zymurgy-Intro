@@ -20,6 +20,7 @@ Guys did you know I really like the Ultra Beasts, so I trapped them and myself i
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/c552bd89b58764236778f91be06130be367f849a/OrangeLine.jpg)
 ![image alt](https://github.com/ZymurgyThe2nd/Zymurgy-Intro/blob/669fd16428175b2aa3883ce743a48c9cddd77061/WhiteLine.jpg)
 
-Hello! My name is Zymurgy! Read my strawpage for any information you may need <:-]
+Hello! My name is Zymurgy! Read my strawpage for any information you may need <:-] 
+( Caution : I am a freakzoid.. Man I love having self control. ) 
 
 ![image alt](https://github.com/ZymurgyThe2nd/ZymurgyThe2nd/blob/16a2b9d94ac40ffa762b3c79a3677a4acf8db6fa/LilXurkit.png)
